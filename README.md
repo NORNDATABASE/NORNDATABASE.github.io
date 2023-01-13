@@ -5,4 +5,5 @@ Anata ga imi o motte iru to omotte ita mono wa subete, subete no kibō, yume, sh
 
 -erwin smith
 
-![communityIcon_0jahwvdwxrg21](https://user-images.githubusercontent.com/122426412/212235640-91e5d7f8-b49e-496e-b537-a20a2a43e81b.jpg)
+![download](https://user-images.githubusercontent.com/122426412/212237456-40b49ed2-f188-45a7-b93c-e9b0780cb358.jpg)
+
